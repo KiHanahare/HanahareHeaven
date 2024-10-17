@@ -17,3 +17,5 @@ SWPU [NSSCTF](https://www.nssctf.cn/) 战队现役 Web & Reverse 手。
 > - [Untitled](https://www.pixiv.net/artworks/99630657) by [茗猫](https://www.pixiv.net/users/16462721)
 > - [夕阳标志着白天的谢幕](https://www.pixiv.net/artworks/108906379) by [HKcutie⭐](https://www.pixiv.net/users/54867079)
 > - [暖かい友達](https://www.pixiv.net/artworks/52793674) by [なつ](https://www.pixiv.net/users/9179925)
+> - [distance](https://www.pixiv.net/artworks/122551726) by [gerar_dc](https://www.pixiv.net/users/25098149)
+> - [無題](https://www.pixiv.net/artworks/122673030) by [fjsmu（ふじしむ）](https://www.pixiv.net/users/7569500)
