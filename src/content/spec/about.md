@@ -19,3 +19,4 @@ SWPU [NSSCTF](https://www.nssctf.cn/) 战队现役 Web & Reverse 手。
 > - [暖かい友達](https://www.pixiv.net/artworks/52793674) by [なつ](https://www.pixiv.net/users/9179925)
 > - [distance](https://www.pixiv.net/artworks/122551726) by [gerar_dc](https://www.pixiv.net/users/25098149)
 > - [無題](https://www.pixiv.net/artworks/122673030) by [fjsmu（ふじしむ）](https://www.pixiv.net/users/7569500)
+> - [Untitled](https://x.com/hrno_ai/status/1889963986290127327) by [春野にじ](https://x.com/hrno_ai)
